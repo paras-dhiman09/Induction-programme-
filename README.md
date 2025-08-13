@@ -1,7 +1,7 @@
 ## Induction programme:-
 
-##Name:Paras Dhiman.   
-##Branch: Electronic And Communication Engineering 
+**Name:Paras Dhiman.**   
+**Branch: Electronic And Communication Engineering**
 
 ##Day 1 – A Spiritual Start & Warm Welcomes
 
