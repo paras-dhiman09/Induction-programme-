@@ -103,5 +103,5 @@ _Takeaway: “Creativity and science share the same spark—it’s curiosity.”
 **Date: 12 August 2025**
 Making our student ID cards felt official—like we’d truly arrived. Physics laser experiments made the theory shine brighter, and our first PPS programming class introduced us to the language of computers.
 
-__Takeaway: “Every student ID is a ticket—not just to classes, but to possibilities.”__
+_Takeaway: “Every student ID is a ticket—not just to classes, but to possibilities.”_
 
