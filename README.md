@@ -6,6 +6,7 @@
 ## Day 1 – A Spiritual Start & Warm Welcomes
 
 **Date: 30 August 2025**
+
 The college gates opened to a new chapter in my life, and the first page began with a calm melody—Shabad Kirtan at Guru Sahib. The morning sunlight filtered through, and the chants felt like a blessing for the road ahead.
 
 Tea cups clinked at the welcome gathering, laughter filled the air, and strangers began turning into friends. The inaugural ceremony followed—Tarnveer Kaur as the graceful host, Harsimran Ma’am sharing the college’s proud history, and the chief guest, Mahesh Inder Singh, speaking from the heart about memories and connections.
